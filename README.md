@@ -7,3 +7,5 @@ My internship at The Prodigy Infotech Online recently concluded, spanning a dura
 INTERSHIP DURATION: 1 MONTHS [15 May - 15 June 2024]
 
 MODE: ONLINE
+
+
